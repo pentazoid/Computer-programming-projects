@@ -1,2 +1,0 @@
-# HELLWORLD
-Going to hell
